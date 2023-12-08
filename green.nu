@@ -12,11 +12,4 @@ Come tell us how you slew them old Arabs two by two
 Like the Zulus they had spears, bows and arrows
 How brave you faced one with your 16-pounder gun
 And you frightened them natives to their marrow
-Come out ye black and tans, come out and fight me like a man
-Show your wife how you won medals down in Flanders
-Tell her how the IRA made you run like hell away
-From the green and lovely lanes of Killashandra
-Come let us hear you tell how you slandered great Parnell
-When you fought them well and truly persecuted
-Where are the sneers and jeers that you loudly let us hear
-When our leaders of sixteen were executed?"
+Come out ye black and tans, come out and fight me like a man"
